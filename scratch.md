@@ -67,3 +67,62 @@ M-theory allows up to 9-branes
 
 
 oxygen molecule, two blobs of quarks with a certain number of electrons around each to allow them to stick to one another, build up new def for quarks earlier in book, exits julius cesear lungs and enters yours, find that, find better idea. talk about how an artery or vein is within x mm (find length of bateria or something) of tissue or whatever factoid. x number of cells! feeds each cell, each cell morphed from a single kind of cell, the instantiation of a human being, see certain section with regard to abortion, was going somewhere else as well... i forget. oh, we are fully replaced every 7 year, that factoid, see if exceptions like teeth or whatnot. just continuous waves of patterns, the faster and wavier the smaller you look. dancing tangles of energy building ever more complex braids. this will go after building up from cosmic egg, particles breaking apart, glow transition, use a bright light, farther away the less bright, then with fog at night or a heavy snowstorm with sun (sol, soul) overhead use Our Body once for earth then just use 'our body' our world is the planet, and the planet's world is the entire universe, or 'the world', so earth is 'our world', universe 'the world'
+
+what you experience as "real" is always 10-100 ms in the past, depending on the senses used to build that experience. a video playing at 100 fps would flash one time over the duration of 10 ms, and flash 10 times over 100 ms. a 28 fps film would flash less than 3 times over 100 ms. so if you were bitten by a mosquito, or absorbing photons from mars, it will be a bit before you noticed.
+if you were a [species] frog, you would be able to see or detect individual photons. a source of light from far away may dim to nothing for us, but the [species] frog would see a source of light flickering off and on very very quickly, mostly on, eventually just flashing a few seconds in-between
+those few photons probably won't cause the frog to do much anything different, but it might
+it may spot a cascading sensation of light from a coming fire-bearer, and jump away to safety
+the same can be said for humans, but the light will simply be faint and grow brighter
+that briefest of sensation could have wildly changed how you behaved
+that light could be people coming to your rescue, or dreaded enemies on the prowl
+this goes for the light from mars as well
+if you have ever gazed up at that tiny red dot, it has had an effect on you
+for most it may cause you to look up and nothing more
+for some they gazed up right before kissing their partner for the first time
+perhaps she got a tattoo of mars along with her partner, and it played as a beautiful motif for the rest of their lives
+these small influences growing to huge changes are coming from everywhere, even as far away as mars
+but mars is 100 million thousand meters away, 300,000,000 meters/s -> nearly an hour ago
+even the sun is a few minutes in the past, were it to disappear we wouldn't immediately know
+what we are, if we were to section off our body all we would be is a surface absorbing light and repelling electrons
+our experience would simply be the fluctuations of energy or signals over this 2d boundary
+instead, who and what we are extends out from your head, absorbing the past as it was 10 ms ago, then 1 second ago, then an hour ago, all the way out to the entire cosmos, as best as we can see it
+we now know that who we are extends out until gravity was created because we experience the ripples of spacetime from objects like black holes from very far away, beyond where the light goes out
+particles, little 0d points in space, are better described as one giant wave, spreading out as we move forward in time
+we are learning that we are connected all together as one planet, one system, one galaxy, one universe
+right now our capabilities are just barely reaching out beyond our planet
+humans right now are committing perhaps the first global sin
+we are not empowering those who understand the gravity of the situation
+scores of beautiful species, expressions of god, will go extinct, and will only exist in recordings or fading memories
+mass migration from places less habitable will grow in numbers
+millions will be casualties
+humanity will survive, we are a proud, hardy ape, but it will be shrouded in sadness
+
+this is what we are, as best as we are able to tell
+before the gravity of dust pulled itself together to form the earth, those specks of matter traveled from the inside of a star
+maybe our dust ball comes from many different stars
+before there were stars, there was a lot of hydrogen, which again pooled together into globs of matter, perpetually exploding from its immense energy
+the hydrogen (and the rest of the gas atoms) was more energetic the farther you look back
+eventually they are heated to the point where they fly apart, electrons bouncing against nucleons and light bouncing around both
+suddenly there is bright orange light coming from every direction in space, as photons scatter about traveling millions of miles before entering your eye
+you can see your hand, your body, and anything else around you, but distant objects fade into the blinding orange fog
+as everything gets more crowded, bouncing against one another with ever-greater speed, the nucleons fly apart, releasing quarks and gluons to ricochet off electrons and photons
+soon the light surrounding you grows dim, as all the photons grow to ever higher frequency
+the world grows blue and then black as the light receeds from our color spectrum
+forces begin merging together, combining particles together into things we have never witnessed
+eventually you are left with simply one force, a smooth energy spread throughout an increasingly shrinking space
+at some point time stops, and we are left with a single thing
+moving forward in time tells about the same story
+a simple pervasive energy split apart, into things that could then be put back together in interesting patterns
+quarks begin sticking together, forming charges which interact with electrons
+light appears, creeping from dark blue to white, which then fades to orange
+as the quarks and electrons lost their energy, stable nucleon-electron waves began to form, spreading out into an expanding space
+as locations became vacant of charge, being constrained to stable neutral regions separated by small distances of space, photons were able to travel among the atoms unimpeded, traveling billions of years until hitting your eye or another atom.
+this moment of time, when light became unimpeded can be seen when plotting the cosmic microwave background
+a photon was allowed to travel in a straight line, losing energy as it is stretched through space, then hit the lens of a satellite
+the atoms formed stars, and those stars formed bigger atoms, and those bigger atoms form you
+first they group into simple patterns, different configurations of atoms stuck together from their electrons
+these tiny groups grow into more complex patterns, large spacial configurations of dozens of different atoms
+the bigger pieces begin to clump together
+those bigger pieces grow into a living organism, with a variety of complex systems maintaining a process inside a tiny bag of water
+those tiny bags clump together, creating more clumps similar to it, and given enough time these clumps will turn into a human
+very very early on, reality split into different forms of energy, and everything after has been the result of those energies forming spacial configurations of increasing size and complexity, taking longer for more complex patterns to play out
