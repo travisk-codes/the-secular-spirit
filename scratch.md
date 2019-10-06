@@ -1,4 +1,22 @@
+write. for however long. no matter what. just write. and then edit! edit some other time. you can extract out good chunks, or organize them! tag them by subject or what have you.
 
+in the beginning there was energy. at least near the beginning. we know there was energy a few seconds after the beginning, solely existing as a thick soup of isolated points of potential separated by brief gaps filled with the ripples of their wake. we know there was energy a blink after the beginning, and are pretty sure of what that looked like as well. but the beginning itself we simply cannot say what was there. but most likely, it was energy.
+
+right now there is energy as well. everything we see and feel is energy. but it looks like many different things.
+
+thought occurs that i'm going slowly, or that I'm wasting my time.
+
+it looks like the stuff of you and i, and the colors emerging from a prism. it feels like the soft fur of an animal or the unique sensation of a cold breeze intermingling with the sharp warmth of the sun. 
+
+taste touch sight sound and feeling
+
+all of this is energy, and we know these different kinds of energy are the same.
+
+the only way we know what happened before we existed, is because we know what is happening now, and are able to compare that to what is happening now, i.e. a short time after. we can say that before earth existed, everything was closer together. a time traveling astronaut would see all the stars and galaxies we see today, but they'd be closer. and as a consequence, things would be brighter and hotter. it was also a lot dustier. and billions of years before that
+
+why i will never eat meat again
+
+as we learn more and more, ad 
 i want my book to have a form, a narrative, a story to tell. i can do this by first describing what it is i want to write, and then filling that out to write it. then edit. so what is my goal. see beyond yourself. argue the case that there is only one thing and that thing is you and me and the animals and the earth and the sun and the moon and all the stars and indeed everything there is in the universe and we can call that one thing god. then, we can use this knowledge to figure out what to do. how to behave. what's the goal. one such goal is the possibility of forward time travel, and when we get our shit together then we'll join a larger timeline. causal timeline. but also if you and me and the trees and the ocean are expressions of god, then we will want to treat ourselves as well as we can. a myriad of reasons. so, three sections right? 1. what we are: start from the beginning and a single particle. grow from there. sprinkle in some space and time. end at self-aware complex life, still described only in the abstract, with perhaps a concrete example here or there. use this as a base for the argument made in 2. you and i are one in the same, then all of the earth, then the whole universe. name this thing god, and schrodiger said god ripples. back this up with science. 3. is implications. go read a book about hume. What does this say about religion? 
 
 there is a long pattern in science, of finding out there is a lot more stuff than we thought. land then planets then stars, one galaxy, many galaxies. go into the cosmic landscape. now go meditate.
