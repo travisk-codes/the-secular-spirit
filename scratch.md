@@ -1,12 +1,10 @@
 # outline
 - what we are
   - bb to now
-    - bb
-    -- in the beginning there was energy. at least near the beginning. we know there was energy a few seconds after the beginning, solely existing as a thick soup of isolated points of potential separated by brief gaps filled with the ripples of their wake. we know there was energy a blink after the beginning, and are pretty sure of what that looked like as well. but the beginning itself we simply cannot say what was there. but most likely, it was energy.
-    -- after flash
-    --- asdf
-    -- now
-    --- right now there is energy as well. everything we see and feel is energy. but it looks like many different things.
+    - bb to flash
+      - in the beginning there was energy. at least near the beginning. we know there was energy a few seconds after the beginning, solely existing as a thick soup of isolated points of potential separated by brief gaps filled with the ripples of their wake. we know there was energy a blink after the beginning, and are pretty sure of what that looked like as well. but the beginning itself we simply cannot say what was there. but most likely, it was energy.
+     - flash to now
+       - right now there is energy as well. everything we see and feel is energy. but it looks like many different things.
   - now back to bb
   - meet in middle?
   - common patterns of relative position, increasing time+complexity, building blocks of structures built at ever greater scales
