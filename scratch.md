@@ -159,3 +159,19 @@ build footnote writer with html anchors and links
 one may think that qm, gr, none of this affects me, but they do! you are likely reading this on a giant array of very tiny spotlights, each showing different colors to assemble the words that you see. gps, unaccounting gr, would grow inaccurate at a rate of X meters/hr/min. these are newer technologies, but the same could be said of future tech. cern second order effects, besides finding the higgs. all the other discoveries and cutting edge tech left in its wake. webb tele!
 
 just look at the other, what you want, and aim towards that, perf and all
+
+isomorphism of mind-body-soul and personal-physical-consensus realities
+
+mind is the reality one personally experiences, the blinds through which existence is experienced. i think therefore i am, which means roughly in order to question the existence of myself, there must be something to do the questioning. your body, including your brain and the electrical signals therein, are physical reality, the building blocks that are there regardless of whether an i is around to experience it. the personal emerges from the physical, and the physical is known from sentient concousness. the soul is that which spreads out among humans, permiating through our social networks and communities and eventually the whole world. this is why the sky is blue, because we have a broad consensus that the sound/word 'sky' is *that*, and the color of that is a 'shade of blue'. the closer we come to a single consensus reality, the closer we will be to who We truly are.
+
+- mind-body: that point where the electro-chemical sensory inputs are transformed into a coherent whole, i.e. your conscious experience. delay of 10-100ms
+
+- mind-soul: mirror neurons, your thoughts, memories, and feelings about other living beings, or Our world as a whole, and the tmf of you within the brains and minds of others
+
+- body-soul: a rock does not have a soul, because no reciprical connection? explore idea. the body is the means by which the soul flows, grows, and explores. fermions and bosons. just mind-body but where the body is the earth, system, universe
+
+- per-phy: personal emerges from physical patterns. spacetime braids, but replace with waves and call it spacetime blooms, a perpectual unfolding of what mostly is, as well as what could have been.
+
+- per-con: the necessary ingredient for a consensus to form. when a soul emerges. two people needed to form a consensus, strongest when the consensus is mutual love for each person.
+
+- phy-con: to varying degrees within the body politic, the ingredients of the consensus, Us, we will under stand better and better what the physical is. that is, what We are. physics as the study of god. per-phy may have beliefs of what We are, but there are much better reasons to believe the consensus of the physical community, because it is much closer to the truth. god.
