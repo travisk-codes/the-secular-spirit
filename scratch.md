@@ -11,10 +11,15 @@
   -
 - what We are
   - human to humanity
+    - objects and signals
+      - vocal sounds to meaning
+      - analigy to fermions+bosons, organelles to proteins, etc.
   - humanity to planet
   - planet to universe
-  - the soul
   - mind body soul
+    - mind
+    - body
+    - soul
   - per-phy-con
   - their duality?
 
