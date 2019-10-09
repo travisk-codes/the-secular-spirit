@@ -1,3 +1,19 @@
+# outline
+- what we are
+  - bb to now
+  - now back to bb
+  - meet in middle?
+  - common patterns of relative position, increasing time+complexity, building blocks of structures built at ever greater scales
+  -
+- what We are
+  - human to humanity
+  - humanity to planet
+  - planet to universe
+  - the soul
+  - mind body soul
+  - per-phy-con
+  - their duality?
+
 write. for however long. no matter what. just write. and then edit! edit some other time. you can extract out good chunks, or organize them! tag them by subject or what have you.
 
 in the beginning there was energy. at least near the beginning. we know there was energy a few seconds after the beginning, solely existing as a thick soup of isolated points of potential separated by brief gaps filled with the ripples of their wake. we know there was energy a blink after the beginning, and are pretty sure of what that looked like as well. but the beginning itself we simply cannot say what was there. but most likely, it was energy.
