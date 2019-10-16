@@ -206,3 +206,39 @@ but their feelings are just as deep
 - in the book describe not just humans but other animals animals like dolphins that are highly evolved and display soul in the abstract terms that are developed
 - we emphasize to yourself that you're splitting through space-time as the little tiny molecules in your brain create different paths or different worlds that is a as far as we can tell a literal real thing and me and besides that to yourself
 use that as a motivation to control that path
+
+in the beginning there was energy. no particular kind, no particular place, but close to the beginning in time. a spread out substance, spanning as far as you can see in all directions. but nothing you can see, for light does not exist. nothing you can feel, because a force does not exist. and nothing you can hear, because spots of stuff through which waves of stuff push their motion, do not yet exist. they are all one in the same, an energy, a potential for ever more complex things to happen, smoothly spread as far as the eye could see. 
+
+were you able to feel the temperature outside your suit, you would notice that it is cooling down. would also notice, were you able to, that everything was getting farther away from you. indeed, no matter where you moved to through spacet or stime, it seemed like everything was was getting farther away from that spot. or event. that observation.
+
+/*
+
+the rapid expansion of space is just the exponential increase in entropy. what would the slow down correspond to? the appearance of a horizon? does it speed up, then slow down, then speed up again, because the expansion is always there, the dark energy, but red shift is an illusion, in terms of timescale? huge growth, then horizon, then a just further, ever increasing growth in entropy, which will look like redshift just because it's always increasing, even where our region blew out, bounded by the earth's or human's location in space. system next door? regions of your spacetime will never reach earth (some will)
+
+*/
+
+then there was the first force. were your suit able to sense a sense of 'push' or 'pull', you would notice that your suit, and indeed your body itself, feel squeezed towards the center of you. the energy first felt a squeeze away from you in all directions at all points? because while the elec are able to supposedly able to resist the possibly immense outward force, the expansion of space still pulls everything outward at all events in stime, including the space between elecs. 
+
+"""
+
+In everyday terms, as the universe cools, it becomes possible for the quantum fields that create the forces and particles around us, to settle at lower energy levels and with higher levels of stability. In doing so, they completely shift how they interact. Forces and interactions arise due to these fields, so the universe can behave very differently above and below a phase transition. For example, in a later epoch, a side effect of one phase transition is that suddenly, many particles that had no mass at all acquire a mass (they begin to interact differently with the Higgs field), and a single force begins to manifest as two separate forces.
+
+Assuming that nature is described by a Grand Unified Theory, the grand unification epoch began with a phase transitions of this kind, when gravitation separated from the universal combined gauge force. This caused two forces to now exist: gravity, and an electrostrong interaction. There is no hard evidence yet, that such a combined force existed, but many physicists believe it did. The physics of this electrostrong interaction would be described by a so-called grand unified theory (GUT).
+
+The grand unification epoch ended with a second phase transition, as the electrostrong interaction in turn separated, and began to manifest as two separate interactions, called the strong and electroweak interactions.
+
+
+""" wikipedia
+cool
+
+then there was the second force. no, first dark energy, then there was a difference. dark energy, gravity? gauge force, first force? second force? same time?
+
+maybe it's a piece of paper, you drawing a line, splitting gravitation from... dark energy? and as you are drawing this line, there's a split! two lines, suddenly creating three spaces, three different things. dark energy, gravity and electro strong?
+
+okay here's how it works. someone cool succumbs to shitty behavior? it's because of the shift of what is considered okay to say, which itself shifts what it's okay to believe. barr is trying to remove transfolk from the FBI because the culture is more accepting of it. at least the other bubble [1] . he wouldn't dare try removing gayfolk, but in another time you bet he would. because he is an opus dei catholic. and it is against the bible. the right is sustaining an overton window that is far from where society actually is. the last spasms of a dying social system. good or bad, people are leaving churches. i think it's good and bad.
+
+so yeah, phase transition! first there is god/dark energy then there is god+grav, then there is god+grav+selec, because it is a further splitting. 1->split->2->split->3 ? 
+
+entroenergy 1
+entrograv 2
+entropic gravitational strong 3
