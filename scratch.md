@@ -2,7 +2,10 @@
 - intro/meta
 	- write. for however long. no matter what. just write. and then edit! edit some other time. you can extract out good chunks, or organize them! tag them by subject or what have you.
 	- i want my book to have a form, a narrative, a story to tell. i can do this by first describing what it is i want to write, and then filling that out to write it. then edit. so what is my goal. see beyond yourself. so, three sections right? 1. what we are: start from the beginning and a single particle. grow from there. sprinkle in some space and time. end at self-aware complex life, still described only in the abstract, with perhaps a concrete example here or there. use this as a base for the argument made in 2. you and i are one in the same, then all of the earth, then the whole universe. name this thing god, and schrodiger said god ripples. back this up with science. 3. is implications. go read a book about hume. What does this say about religion? 
-
+	- long list of quotes at first, including 'how strange it is to be anything at all', einstein quote about illusion of time, etc.
+	- for my mother, who loved me too much. for my father, who suffered for his sins
+	- none of what follows is true, but, like a model, it might be useful
+	- first level: simple english, minimal physics terms
 - what we are
 	- timeline
 		- bb to flash
