@@ -141,3 +141,9 @@ i perform civil-social maintenance
 - elaborate on this braid it is a braid because unlike the game which ticks in very tiny discreet steps our time is continuous space time is continuous and because we are fortunational beans not three dimensional plus time we are four dimensional what seems like a point is actually traced a line of energy through a braid these different braids as they constantly split apart Is that entropy when there's more splitting apart the more you have to know how things change as they ever they branch out they they constantly bloom out a perpetually blooming flower with ever more petals behind the last the next
 - this braid the more complex the braid the more entropy the more information it requires and that is why a random star in the sky does not add as much information because it's only sending a fuzzy wave of electrons
 - and then go into how we discovered that the rule the rules by which our game state changes describes a wave a particle is a ripple we are just one point along this ripple but like a drop of water like a drop of water hitting a pond spreads out in all directions this spreading is the infinite regress of petals
+
+like any model every word in this text is false, but it might be useful
+
+when time first began there was only energy. no particular time pure in its form. there was also bass space, rapidly inflating outwards due to this presence of energy. it all pushed away from itself
+
+at some point, the singular energy split apart into two different kinds, one which pushes and pulls, and one that only pulls[1.1
