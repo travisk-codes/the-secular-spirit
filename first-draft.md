@@ -1,0 +1,19 @@
+1 in [year], We discovered that We are not a three-dimensional being changing with the constant flowing of time, but rather a four-dimensional being, with time becoming a part of who We are
+
+2 Although it looks like we are made out of little points of energy, but it has four dimensions in space, not three. We simply are unable to peer out from Ourself, and see an intricate braid of energy, looping around one another in ever increasingly large patterns
+
+3 Soon after in [year], We discovered that the way these points or braids flow, or change shape, describes a wave . It seems that if you look closely enough, these points actually look like vibrations, small ripples, undulating as a wave does
+
+4 In [year], or 5574838928584389 convert speed of light to something? It was found that We were growing bigger! And in [year], we learned that it is always growing faster, like a quickly-inflated balloon[a] find video [/a] (at first, then it begins to slow down inflating, as the rubber is no longer able to stretch. We always keep going.
+
+5 In [year], a part of Us, a part of Ourself that studies Ourself as a profession, began to mostly agree with themselves that, really, it is all just one big wave . the moon,  the sun, the stars, you and me and the space between, it is all one big wave, one giant comples ripple, like a pond in the rain
+
+6  Soon after, a smaller part of the big group that studies Ourselves noticed a very interesting hint . it seems that Our whole volume, all the way back to when We were the size of a speck of dust, along with time, maps to the surface of a five-dimensional sphere, but without time, static for as long as We live.
+
+7 when these ideas are taken seriously, it leads us to a beautiful conclusion: there is only one thing, We are made up of our families and friends, the moon and the stars, and all way the back to when it was bright [1]see part 45 or w/e[/1] 
+
+8 from this, there is a reasonable argument that what we are, what all this is, usually called reality, or the universe, or the natural world, is god. I will make this argument as well as the idea of a physical soul, along with its relation to mind and body. I will attempt to make a case, that you and me and the earth, the oblate spheroid beneath our feet, are all one thing, in an even deeper sense, a complexity at scales which allow for life, and all the beauty and trajety that comes with it.
+
+9 Finally, I will suggest how this might be used to find the best way to live . morality and ethics . I look forward to your suggestions and discussion on these topics.
+
+10 Spirituality does not only not require religion[b] not that We do not require it, for religious expression can be a beautiful (or tragect) expression of God[/b] I believe physics itself can give rise to not just spirituality, but a kind of faith.
