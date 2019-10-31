@@ -147,3 +147,25 @@ like any model every word in this text is false, but it might be useful
 when time first began there was only energy. no particular time pure in its form. there was also bass space, rapidly inflating outwards due to this presence of energy. it all pushed away from itself
 
 at some point, the singular energy split apart into two different kinds, one which pushes and pulls, and one that only pulls[1.1
+
+knowing a position between the moon and the earth to within the breadth of a human hair (12 decimal points)
+is the precision of qft (before qft?)
+a particle is the cross-section of a braid an energy braid a braid of energy
+wheeler back and forth strand of electron (electron strand) looks, in slices, like many electron particles
+from which grew feynman diagrams
+anything can happen as long as it happens fast enough to detect dedt > h
+field sits at zero, but if you look, its fluctuating around zero. look closer, bigger flucs, more energetic particles? 
+knot is quarks, gluons jump gap
+
+it is only on rare occasions that you do not feel the ground beneath your feet it is not that we are simply tethered to the Earth we are extensions of it
+
+The branching that Sean Carroll talks about the gradually getting thinner of a particular world can be thought of as a hardening. when we think of ourselves as spreading out Is not just us that spreads out it is the whole earth it is every object in the universe every interaction the reason that solid objects do not behave quantum mechanically Is this hardening this crystallization of interactions a single particle two single particles pretty out somewhere in the wave function of the universe this spherical body of water with different kinds of waves overlapping one another locations particular spots where two waves meet have a tendency or can stick together like protons and neutrons nucleons and electrons a nucleon is not little ball stuck together it is one big sphere that spreads out that has an extent in space due to the uncertainty principle the same reason that degenerate matter is I guess so hot um so I am branching out I'm spreading out I'm walking around in different patterns in different worlds oh but as the special extensives begin gluing together over larger distances it's not able to spread out as much because information has to travel between those distances this is also where MC squared comes into play the c squared it is I guess how much to say photos able to spread out over a period of time which is some sort of area some sort of velocity squared area
+
+film soundtrack that is composed only of heartbeat rhythms where the number of rhythms allowed is equal to the number of characters being portrayed on screen
+
+
+picture 2 points on our circle pond spherical hollow shell pond with different kinds of waves Ripley together and two particles of two different fields meet this moment of the two particles meeting two dots being carried out from two spherical wave fronts they meet and that meeting point itself begins to spread out and say a spherical wavefront or perhaps directed but because these two particles might stick together and because momentum must be conserved these two faster particles maze slow down and therefore not able to spread out as much spread out at the circular cross sections of the light cone I guess so maybe the stitching together of space time are these little areas spreading out spreading out of possibility proportional to the area of c squared
+
+picture yourself driving in your car with a falcon with a bird watching over head or better yet a time lapse from a spy satellite you will appear to circle around or hover around particular spots maybe there are different spots within a larger spot with sudden jumps to another spot corresponding to wind you were driving your car from spot-to-spot these themselves will form loops larger connections most people make the same commute every day following the same loop but they also go other places perhaps less frequently and perhaps they travel far very rarely looked at fast enough you will look like a particle moving around in a larger emergent pattern these patterns spread out along with the entire Earth and every particle in the universe the observable universe but much more slowly than a particle or an atom or a molecule
+
+compare and island City State to a cell where organelles represent perhaps different important buildings or locations on the island
