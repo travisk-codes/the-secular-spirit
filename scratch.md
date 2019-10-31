@@ -1,56 +1,6 @@
 
 
-thought occurs that i'm going slowly, or that I'm wasting my time.
-
-why i will never eat meat again
-
-as we learn more and more, ad 
-
-
-Spirit
-* mind, body, soul
-  The triad
-  The mind is not one mind, thank god, because diversity of thought is our greatest strength. We are not one body, thank god, because redundancy greatly benefits our physical surivival, and we are not one soul, because I’m likely to not have any social interaction with someone on the other side of the planet. But we’re not exactly different souls, I don’t think. Because the tendrils of causality expanding out of me, or the atoms that represent me at this event, may very well effect someone on the other side of the planet. I could join a growing company that eventually impoverishes a village. Compounding social interaction, even miniscule or minor, can ripple through the connections we all have to one another.
-  Maybe thinking of one mind is just as extreme as thinking of many individual minds, because we are not individual minds, we become entangled as we braid ourselves through the universe together. It just looks very individualistic from our vantage points, and such is our soul, through those tiny tendrils we each thrust into the future.
-  The atoms of our collective Self are the individuals each one of us while the connections are information and naimation is what brings the collective self to life a structre or system needs to have procedures and when you vote and when the president makes a speech that communication from him those words and those letters and those ideas expressed while it may contain very little information it causes quite a lot ot o say for example a declaration of war relate that sort of information back to entropy and how it rlates to thermal entropy and uantum entropy and theoretical shannon entropy.
-  The self
-  The self, like religion, currency, and borders, is a fiction. It is something that makes our lives easier, a tool out of which we construct meaning in our lives. Unlike religion, currency, and borders, the self is an individual fiction, something one cannot help but develop to make sense of, well, the senses arriving at our mind's door, barging in whether we want them to or not. The others are fictions at the scale of continents and civilizations. It seems we don't appear to have much of a choice as to whether we use these tools or not. You could choose not to recognize borders, religion, or currency--but depending on when and where you are, you probably won't last very long.  However, the self can be ignored with relatively little harm done to one's life. In fact entire religions seek the surrender of the self as the object of its practice. 
-  heaven, hell
-  Earth can be Heaven. Earth is Hell for many people, but it doesn't have to be. Human civilization can be seen as the millennia-long, ever continuing march towards a world where every human is without want nor need nor fear nor hate. Like Heaven, this state probably cannot exist.
-  love, faith
-  Love is the vehicle, faith shows us the way
-  Reason
-  big bang
-  there was a bang, a firework, a bright flash of light. everything since then has been the embers cooling off in the sky. a speck of ash, floating near one of these embers, grows warm, allowing its constituent parts to begin molding and flowing and combining into different things. soon, on the surface of this oozing ash circling an ember floating in the night sky, there appears to be some sort of flowing taking on a life of its own.
-  In the beginning there simply was, a presence, an energy above and beyond light and matter. A simple oneness, devoid of feature beyond its potential.
-  “Times before before the end of inflation do not follow the same timeline”
-  After the single presence there first came difference a something different from that, here to there, this and that, not simply one thing, but two things
-  Symmetry breaking
-  https://en.m.wikipedia.org/wiki/Chronology_of_the_universe#Very_early_universe
-  Gauge force
-  The other, the something other than oneness became gravity soon after, came the strong--at this point the one is a felt force in space, a second feeling of pull or push, and a third: gravity, strong, ‘electroweak’
-  Then electromagneticsm separates from weak, and there become the four fundamental fources of nature
-  At this point, the universe began to be inflating to a much larger size, a number with 78 zeroes behind it. Or around 78 depending on your unit of length
-  It’s not so much that space became bigger, but the speed of light (the speed of causality), the arrow of time, a degree of freedom released at each event spacetime point that is and ever will be
-  And the velocity is what was expanded (or shrunk?) at one moment, each point in spacetime felt an incredible pressure, a repultion to everthing around it.
-  After space had grown, the energy in it at every point becomes very thinly spread out, allowing another force to push out of the potenial an event with a vibration across all forces, but mostly in one like a spherical pluck of a string, sent off some direction. There were vibrations that matched (quark anti quark) in some property, and different in one, like looking in an upsidedown mirror, as well as gluons, which travel at the speed of light? While the quarks should have mass. Yes, but quarks at are at an energy level where mass is not able to yet grab glob onto it
-  The universe is a fractal, where our forces branched off, extending like tendrils into what may as well be complex-valued real-valued dimensions beyond idea. Math has to come from somewhere.
   Scales
-  Atom
-  An orbiting electron, a captured electric field energy, has a charge when it is captured. The reason electrons can pair up down is because the second one cancels out the first, it interacts, rotating, orbiting, vibrating in the same way except to cancel, but I guess the mass creates the necessity of further orbital levels?
-  Star
-  More atoms
-  Molecules/compounds
-  Planets
-  Life
-  Replicators
-  Genes
-  Survival shells (bodies)
-  (social) Conscousness
-
-
-
-
 bioengineering/ai
 Reason
 Purpose of reason section is to build up justification for spirit section (mainly that spirit corresponds to other interconnections at lower scales
@@ -168,4 +118,3 @@ picture 2 points on our circle pond spherical hollow shell pond with different k
 
 picture yourself driving in your car with a falcon with a bird watching over head or better yet a time lapse from a spy satellite you will appear to circle around or hover around particular spots maybe there are different spots within a larger spot with sudden jumps to another spot corresponding to wind you were driving your car from spot-to-spot these themselves will form loops larger connections most people make the same commute every day following the same loop but they also go other places perhaps less frequently and perhaps they travel far very rarely looked at fast enough you will look like a particle moving around in a larger emergent pattern these patterns spread out along with the entire Earth and every particle in the universe the observable universe but much more slowly than a particle or an atom or a molecule
 
-compare and island City State to a cell where organelles represent perhaps different important buildings or locations on the island
