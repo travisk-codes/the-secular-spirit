@@ -54,6 +54,8 @@ x13 from the beginning to the end of light
 
 x14 when time first began, there were only two things: energy and space . energy, powerful in its density, rapidly inflating the space in which it was contained<sup>1</sup> . soon after, this pure form of energy split into two different forms, both present everywhere, but of different natures . one could both push and pull, while the other could only pull<sup>2</sup>
 
+n (x14b) when spacetime first began, the only thing was energy<sup>is this a reasonable assumption?</sup> . this energy was exactly the same everywhere, pure in form and substance, pushing
+
 x15 soon after, one form of these two energies again split into two, forming again new energies, always everywhere, but different in nature . there were now three different energies existing together in their rapidly growing space
 
 x16 place here the rapid inflation of space, space still expands earlier, but don't stress its rate
