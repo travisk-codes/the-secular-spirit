@@ -1,4 +1,4 @@
-the secular spirit . . .  0
+```the secular spirit . . .  0
 notices  . . . . . . . .  1
 introduction . . . . . .  5
 what This is . . . . . .  x11
@@ -11,13 +11,13 @@ what This is . . . . . .  x11
 what We are
   you to everyone
   everyone to Terra (include moss ball!)
-  Terra to Us
+   Terra to Us
   mind, body, and soul
 how to live
   openness
   boundaries
   concern
-
+```
 0 the secular spirit
 
 1 notices
