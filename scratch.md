@@ -130,3 +130,8 @@ a solar sail works by absorbing the momentum of photons hitting the mirror-like 
 find object with most pictures in different wavelengths, or picture taken with widest wavelength diff, color correct all to the same color, sin fade between lowest and highest wavelength, see how it changes ? 
 
 if you were a massive particle, perhaps one that can see all the colors of the spectrum, and you continued to accelerate, your universe would become more squat in the direction of travel . and everything happening in your universe would slow down . keep going, and your perspective approaches that of a photon, pushing up against this universe-wide boundary, everything inside slowing to a snail's pace . is it a position in the wave ?  
+
+embedded cognition, body influences actions *and* thoughts
+emotions involve emotion ?
+before feeling, there are emotions. nervousness is both? 
+in the beginning was emotion before a felt feeling in a nervous system
