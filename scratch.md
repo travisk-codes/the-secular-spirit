@@ -160,3 +160,12 @@ it may not feel like it, but at this moment you are spreading out like a wave . 
 the electron cloud sitting around an atom, when not observed, is just sitting there . there is nothing whizzing around, there is not any noticeable change of any kind . when we look it is at a spot . or rather, when we measure between here and there, making here and there really close together, and then slicing the world away into what looks like a small dot . 1d left and right of the measured interval are sliced away, 2d forward and back, and 3d up and down . you will find a slice of "the electron" or the slice is what we call an electron, but it is sliced away, and the rest is still there, just somewhere else . 
 
 the electron spin, isn't 50% likely to be here and 50% likely to be there : it is 100% likely to be here and there , but there happens to be somewhere else.
+
+a spot in a wave bobbing
+
+why not just have three rotating vectors at each point? for each complex number in 3d space?
+
+the energy is how fast the wave is wiggling in time, and the momentum is how steep the slopes are in space . faster wiggles and steeper slopes mean more energy and momentum .
+
+why momentum ? because the total momentum of the universe is zero . a car is flying down the highway, but that highway is on the earth, which is flying around the sun . but the sun is whipping around the center of our galaxy in one of it's tendril-like arms , and our galaxy is flying towards another galaxy . or is that galaxy flying towards us ? the point is the momentum depends on what you're looking at and from where you are asking "what's the momentum?"
+why not velocity ? 
