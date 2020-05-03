@@ -35,6 +35,9 @@
   		- And the velocity is what was expanded (or shrunk?) at one moment, each point in spacetime felt an incredible pressure, a repultion to everthing around it.
   		- After space had grown, the energy in it at every point becomes very thinly spread out, allowing another force to push out of the potenial an event with a vibration across all forces, but mostly in one like a spherical pluck of a string, sent off some direction. There were vibrations that matched (quark anti quark) in some property, and different in one, like looking in an upsidedown mirror, as well as gluons, which travel at the speed of light? While the quarks should have mass. Yes, but quarks at are at an energy level where mass is not able to yet grab glob onto it
   		- The universe is a fractal, where our forces branched off, extending like tendrils into what may as well be complex-valued real-valued dimensions beyond idea. Math has to come from somewhere.
+		- The nature of things
+		- Emergence is not just a simplification of a system it is a simplification that emerges when you expand into a higher into a larger scale of space for example modeling an atom as a point particle see if that's the case
+		- The rules for the number of electrons in different orbital shells is just spherical harmonics the way that two atoms fit together is when spherical harmonics can overlap
 		- flash to now
 			- right now there is energy as well. everything we see and feel is energy. but it looks like many different things.
 			- the only way we know what happened before we existed, is because we know what is happening now, and are able to compare that to what is happening now, i.e. a short time after. we can say that before earth existed, everything was closer together. a time traveling astronaut would see all the stars and galaxies we see today, but they'd be closer. and as a consequence, things would be brighter and hotter. it was also a lot dustier. and billions of years before that
