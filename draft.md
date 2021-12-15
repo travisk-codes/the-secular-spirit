@@ -20,17 +20,19 @@ how to live
 ```
 0 the secular spirit
 
-1 notices
+1 future notices
 
 2 for my mother, who loved me too much . for my father, who suffered for his sins
 
-3 [quotes]
+3 Spacetime is not necessarily someting to which one can ascribe a separate existence, independently of the actual objects of physical reality. Physical objects are not in space, but these objects are spacially extended. In this way the concept of 'empty space' loses its meaning. Albert Einstein
+
+4 Reality is merely an illusion, albeit a very persistent one. Albert Einstein
 
 x like any model, every word of the following text is false . but it might be useful
 
-x1 in [year], We discovered that We are not a three-dimensional being changing with the constant flowing of time, but rather a four-dimensional being, with time becoming a part of who We are
+x1 in the year 1905, We discovered that We are not three-dimensional beings changing with the constant flowing of time, but rather four-dimensional beings, with time becoming a part of who We are
 
-x2 Although it looks like we are made out of little points of energy, but it has four dimensions in space, not three. We simply are unable to peer out from Ourself, and see an intricate braid of energy, looping around one another in ever increasingly large patterns
+x2 Although it looks like we are made out of little points of energy, but it has four dimensions in space, not three. We simply are unable to peer out from Ourself, and see an intricate braid of energy, looping around one another in ever increasingly larger patterns
 
 x... Soon after in [year], We discovered that the way these points or braids flow, or change shape, describes a wave . It seems that if you look closely enough, these points actually look like vibrations, small ripples, undulating as a wave does
 
